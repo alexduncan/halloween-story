@@ -6,3 +6,4 @@ The skies were overcast and the winds were howling.
 Bunny is on the way to see her potential new boy friend, and suddently a huge talantura drop on her head
 A baby ghost followed Layla to her room
 Suddenly, super Bunny appared and saved layla.
+But what they were not aware... This baby ghost has been possessed on super Bunny.
