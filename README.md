@@ -5,4 +5,4 @@ It was the Saturday before Halloween.
 The skies were overcast and the winds were howling.
 Bunny is on the way to see her potential new boy friend, and suddently a huge talantura drop on her head
 A baby ghost followed Layla to her room
-Suddenly, super Bunny apperaed and saved layla.
+Suddenly, super Bunny appared and saved layla.
